@@ -1,0 +1,17 @@
+---
+layout: post
+title: Fun weekend!
+date: 2003-11-24 08:50
+comments: true
+categories: []
+---
+Michelle and I had such a fun weekend! We had fun every single day! 
+
+<b>Saturday</b>
+The best day had to be Saturday. We started the day by doing homework and watching a lecture for our Operations Management class, but then we went to our planned date. We went and saw<i> Forbidden Christmas</i> at the Century Theatre! What an amazing show. We laughed the entire time. It was four singers/actors that were spoofing Christmas songs and Broadway-style shows. They made fun of Whoopi Goldberg, Barbara Streisand, Frank Sinatra, Les Miserables, Michael Jackson, and others. The best one had to be Ricky Martin! HILARIOUS! After the show, we had dinner reservations at <b>Sweet Georgia Brown</b>! What an excellent restaurant. It's fine dining at its best. The staff was friendly and courteous, ready to serve you at the drop of a dime! The food was splendid, the scenery was splendid, and the entire experience was superb! I'm so glad we chose to eat there. After that, we mosied into the Greektown Casino and quickly lost $40 at a $1 slot machine. We then went to Casino War where we almost instantaneously lost another $100. On the way out, I decided to take our last $8 we had and throw it into a $.25 slot machine...lucky lucky. Michelle had an amazing winning pull and we walked away with $80. So, we only lost $60 at the casino instead of $140. Not a bad night. To end the night, we stopped at Blockbuster and rented Finding Nemo. I fell asleep!
+
+<b>Sunday</b>
+The best weather of the entire weekend. While himmin' and hawin' about going to the gym to run and workout we last-minute decided to go to Stony Creek and run around the loop! It was 65 degrees...on November 23rd! How could we NOT go outdoors to run. I wore a cut-off t-shirt and shorts, it was so warm. We ended up running INTO the interior of the park, doing some nice hill training before we came back out onto the asphalt. In the end, I still think we did close to the 6 miles that we'd normally do by running only on the asphalt path! We got home and pretty much studied the entire afternoon until watching American Dreams (one of "our" shows) at 8PM on NBC. I also watched football the entire day. Like usual, the Lions lost (well, they DID win 2 in a row!) to the Vikings, the Kansas City Chiefs beat the Oakland Raiders (but didn't cover the spread...neither did the Vikings...DAMN IT!), and other fun games transpired throughout the day. Today's game between the NY Giants and the TB Bucs should be exciting...and of course, in High Def! That, of course, after the midterm in our Operations Management class tonight. Man, I can't wait until THAT'S over...then we have a "mentally easy" week ahead of us! Michelle's got the whole week off. She had a bunch of vacation days, so she took M-W off, before our Th-F Thanksgiving holiday! Man, it's awesome to work for a car company!
+
+<b>DVD copying success!</b>
+I finally had my first successful DVD backup. I backed up Finding Nemo. This time, I had the burner in my external 5.25" power chassis. This might have been the issue I had with the 2nd attempt I made a few days back. It failed near the end either due to heat or due to lack of power. I don't think the Shuttle SN41G2 has enough power of its own with the 150watt power supply it has to power the Plextor 708 burner. I have to do a bit more research on this.

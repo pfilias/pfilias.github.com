@@ -1,0 +1,18 @@
+---
+layout: post
+title: Toenail, Dino and Dani going to Greece, Deck staining
+date: 2003-07-11 23:55
+comments: true
+categories: []
+---
+<b>Toe:</b>
+So, I've been dealing with my left big toe for a few weeks now. Just dealing... running with pain. The pain subsides after a while, and all is well, however, during the day, the toe just plain sucks. Bumping it kills, touching it kills, etc. I finally decided to go to the doctor about it. After a few small hoops, I had it taken care of this morning by Doctor Mark Weitzman, in Royal Oak. Nice guy. He even joked about the HAP HMO hoops we had to jump while I was there, waiting for my primary care physician to get an approval from HAP. All set. It was quite a procedure. First, he numbed the toe. Two shots, nice and prodding. It seems like he was trying to carve out the inside of my big toe with the syringe/needle. Strange. He had to give me a third injection because I could steel "feel" near the tip of my toe. No biggie at that point. So after I was all iodined and cleaned up, he started. He basically cut a vertical piece of my nail out including the part that was ingrown. He lifted up the cut nail and then pulled it out. Sure did look gross, as the instruments he used were all (3 different tools) deeply buried under my skin at any given moment. So I got this silly, black surgical shoe to wear, and off to work (lunch first) I was. Now I heal. I don't run tomorrow. I rest instead. :)
+
+<b>Dino and Dani are off to Greece tomorrow:</b>
+I am so very excited for Dino and Danielle. They get to go to Greece for the first time as a couple. I've had the luxury of taking Michelle twice. Once before we were even engaged, and the second time as my wife. Both times were wonderful! Dino has never been to Greece "on his own". He's a little nervous, but I think he'll do just fine. He's such a hero when push comes to shove that I think he's going to be like Dirk Pitt! Him and Danielle are going to love it, and I think Danielle is going to love having to rely on Dino guiding her around Greece when it's just them, on their own. After they do some adventuring on their own (Santorini, Athens, and the Peleponnesian Peninsula in a rental car -- jealous), they'll head to the village of Agios Vasilios, my entire family's hometown! There, they'll stay at "home" with my mom, dad, Aunt, Uncle, and Gramma! I am so glad Danielle gets to meet Yiayia! Yiayia is so super tender! I love her dearly, and am very glad they both get to see her. Dino hasn't seen her in 10 years. And this time, I know it's going to be different. She's getting older, more frail, and more tender. I also hope Dino and Danielle head to Zakynthos or Keffalonia while over on the West side of Greece. Both of those islands are so beautiful...so much different in geography than the Eastern islands (Cyclades).
+
+<b>Deck:</b>
+We are going to stain the damn deck tomorrow, if it's the last thing I do. I tried a few weeks back, and it failed. I am even considering renting a belt sander so I can "reboot" on the part of the deck that has a little bit too much stain on it. I think if it is dry tomorrow, it's going to be a success. Michelle and I make a great team. I can't wait to tackle this project with her! I know, I'm gay for not being able to do it myself, the first time I tried. Live and learn. No biggie.
+
+<b>Training:</b>
+I have been working out and marathon training for 6 solid weeks now. I go to the gym every weekday, and I run 4 days a week. I haven't been in this kind of shape since I was young. I feel awesome. I love to watch the results slowly trickle in. I'm partially obsessed...but it can't be a bad thing to be obsessed about, can it?
